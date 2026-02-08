@@ -63,7 +63,8 @@ Aryan Giri
 
 🔗 GitHub: https://github.com/Aryan-nitA
 
-🔗 LinkedIn: https://linkedin.com/in/aryan-giri1298212b1
+🔗 LinkedIn:[ https://linkedin.com/in/aryan-giri1298212b1](https://www.linkedin.com/in/aryan-giri-1298212b1/
+)
 
 5️⃣ Resume Project Entry (IMPORTANT)
 
